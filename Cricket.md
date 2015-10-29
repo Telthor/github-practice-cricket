@@ -7,5 +7,7 @@ but effectively they are on neutral territory.
 
 Misbah Ul-Haq is the captain of the Pakistan cricket team
 Alastair Cook is the captain of the England cricket team
-Ian Bell is from Pakistan
+Ian Bell is from England
 Joe Root is from Yorkshire
+
+

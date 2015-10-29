@@ -6,5 +6,6 @@ They are playing in the UAE due to security concerns in Pakistan - so Pakistan a
 but effectively they are on neutral territory.
 
 Misbah Ul-Haq is the captain of the Pakistan cricket team
+Alastair Cook is the captain of the England cricket team
 
 
